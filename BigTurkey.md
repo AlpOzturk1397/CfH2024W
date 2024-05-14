@@ -3,5 +3,5 @@
  Also this is D'johnn Druide DungeonneandDragoone
 ![Beautiful man](Djohn.webp "D'johnn")
 ```
-**He has never committed war**
+**He has never committed war crimes I promise**
 ``` 
